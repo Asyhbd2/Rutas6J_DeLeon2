@@ -17,7 +17,11 @@
 ![image](https://github.com/user-attachments/assets/86508680-1c47-45ad-bc50-96f867584d2d)
 - Pagina 6:
 
+![image](https://github.com/user-attachments/assets/2ae98496-5d5c-425a-ad85-b02b8c442085)
+- Pagina 7:
+
 ![image](https://github.com/user-attachments/assets/4b288325-1502-48c2-b447-ea4b5f7bc89f)
+
 
 
 
